@@ -6,7 +6,7 @@
 
 we design things that shouldn't exist. yet.
 
-[website](https://distorcate.xyz) · [linkedin](https://linkedin.com/in/angelp-online) · [email](mailto:distorcate@gmail.com)
+[website](https://distorcate.xyz) · [linkedin](https://www.linkedin.com/company/distorcate) · [email](mailto:distorcate@gmail.com)
 
 </div>
 
